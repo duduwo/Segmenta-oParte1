@@ -1,0 +1,1 @@
+# Segmenta-oParte1
